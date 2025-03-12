@@ -12,4 +12,4 @@ Here's some general info incase you want to know more about me !!!
 
 **Thin ice:** If you say slurs (under the assumption you "can say it", otherwise dni), If you make weird jokes publicly in kids spaces, If you're highly religious, If you make mean / harmful jokes (fat jokes, kys jokes, ugly jokes, etc.)
 
-**Interact:** If we share fandoms, If we've been friendly/talked a few times before, Reptile, Amphibian, ETC enthusiasts !
+**Interact:** If we share fandoms, If we've been friendly/talked a few times before, Reptile/Amphibian/ETC enthusiasts !
