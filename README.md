@@ -1,16 +1,15 @@
-## Hi there 👋
+Here's some general info incase you want to know more about me !!!
 
-<!--
-**VelTheVelociraptor/VelTheVelociraptor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+• I'm a man of many fandoms, you can find most of them in my linked carrd !
 
-Here are some ideas to get you started:
+• I have social anxiety that I'm working though and am neurodivergent so sometimes I won't be up for interacting tons if i've not pre-prepared myself for social interaction beforehand or am not in the mood, but it's not anything personal!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+• Please don't make weird/sexual jokes towards me, it can make me a little uncomfortable and I am in a relationship ^^; (Stuff like "I'm gonna tickle you!" is fine as long as we were previously interacting and it's said with innocent intentions)
+
+• I do not knowingly add anyone 14 or younger or 20 and older so please do not request to add me if you are not 15-19 !
+
+**Dni:** General DNI criteria, Hardcore antis of my interests, If you are against poly people / polyamory. 
+
+**Thin ice:** If you say slurs (under the assumption you "can say it", otherwise dni), If you make weird jokes publicly in kids spaces, If you're highly religious.
+
+**Interact:** If we share fandoms, If we've been friendly/talked a few times before, Reptile, Amphibian, ETC enthusiasts !
