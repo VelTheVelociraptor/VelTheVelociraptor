@@ -8,8 +8,8 @@ Here's some general info incase you want to know more about me !!!
 
 • I do not knowingly add anyone 14 or younger or 20 and older so please do not request to add me if you are not 15-19 !
 
-**Dni:** General DNI criteria, Hardcore antis of my interests, If you are against poly people / polyamory. 
+**Dni:** General DNI criteria, Hardcore antis of my interests, If you are against poly people / polyamory, If you are a fujoshi.
 
-**Thin ice:** If you say slurs (under the assumption you "can say it", otherwise dni), If you make weird jokes publicly in kids spaces, If you're highly religious.
+**Thin ice:** If you say slurs (under the assumption you "can say it", otherwise dni), If you make sexual jokes publicly in kids spaces, If you're highly religious, If you make mean / harmful jokes (fat jokes, kys jokes, ugly jokes, etc.)
 
 **Interact:** If we share fandoms, If we've been friendly/talked a few times before, Reptile, Amphibian, ETC enthusiasts !
