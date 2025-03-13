@@ -6,7 +6,7 @@ Here's some general info incase you want to know more about me !!!
 
 • Please don't make weird/sexual jokes towards me, it can make me a little uncomfortable and I am in a relationship ^^; (Stuff like "I'm gonna tickle you!" is fine as long as we were previously interacting and it's said with innocent intentions)
 
-• I do not knowingly add anyone 14 or younger or 20 and older so please do not request to add me if you are not 15-19 ! Please unadd me if I unknowingly added you are you are under 15 or above 19 .
+• I do not knowingly add anyone 14 or younger or 20 and older so please do not request to add me if you are not 15-19 ! Please unadd me if I unknowingly added you and you are under 15 or above 19 .
 
 **Dni:** General DNI criteria, Hardcore antis of my interests, If you are against poly people / polyamory, If you are a fujoshi, 26yrs & older / 12yrs and younger.
 
